@@ -1,1 +1,0 @@
-# SMA-FISIKA-1---1.-VEKTOR
